@@ -3,4 +3,6 @@
 🫢 Fun Fact: I'm married  
 더 궁금하면 연락주세요 hsmoon@kookmin.ac.kr
 
+특기 추가
+
 취미 추가
